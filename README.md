@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [https://www.linkedin.com/in/krish-gaba/](https://www.linkedin.com/in/krish-gaba/)
 
-- 📫 How to reach me **Krishgabade@gmail.come**
+- 📫 How to reach me **Krishgabade@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
